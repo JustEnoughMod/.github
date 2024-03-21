@@ -1,4 +1,4 @@
-## Hi there 👋
+## Welcome at JustEnoughMod (JEM) 👋
 
 <!--
 
